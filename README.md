@@ -1,1 +1,0 @@
-# gokhandalkilinc.github.io
